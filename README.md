@@ -4,13 +4,13 @@
  
 ⚰️     . . .⠀⠀꒰ **SOMETHING'S NOT RIGHT** ! ꒱ 
 
- _07_ .  He ノ⠀It ノ Ey .⠀꒰ **_NIKOLAI / AVID / STREBER_** ꒱
+ _07_ .  He ノ⠀It ノ Ey .⠀꒰ **_SNARE V SHANKA_** ꒱
 
 ![Image](https://github.com/user-attachments/assets/ad613a82-6ed8-4ddf-ab97-fbe882cf55d6)   ノ ![Image](https://github.com/user-attachments/assets/2a6f2e68-129c-40cd-9f62-eee25ecfd426)  ノ  ![Image](https://github.com/user-attachments/assets/04614136-c35e-480b-a7b5-e8dcfdd4e82e)
 
 
 ⁺　.⠀ *MULTIFANDOM* !⠀  ⌒₊˚ ❤︎ ⠀                   
-  ︵  *#Danganronpa #4saken
+  ︵  *#Danganronpa #MCsmps
   #Pokemon #SpookyMonth #Hollowknight & MORE*
 
 ![363258377-ebe9c290-16e0-4b35-957d-ff4b522b5c22](https://github.com/user-attachments/assets/7f3d1d1a-450d-4cc2-9f35-5f7882743587)
