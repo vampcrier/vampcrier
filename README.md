@@ -10,8 +10,7 @@
 
 
 ⁺　.⠀ *MULTIFANDOM* !⠀  ⌒₊˚ ❤︎ ⠀                   
-  ︵  *#Danganronpa #MCsmps
-  #Pokemon #SpookyMonth #Hollowknight & MORE*
+  ︵  *As seen below or whatever.*
 
 ![363258377-ebe9c290-16e0-4b35-957d-ff4b522b5c22](https://github.com/user-attachments/assets/7f3d1d1a-450d-4cc2-9f35-5f7882743587)
 <img width="99" height="56" alt="dfq36e2-a30d6c54-6d94-4162-9acd-67459791a495" src="https://github.com/user-attachments/assets/ac41f955-28c5-4693-a3b9-95f48730c8fd" /> 
