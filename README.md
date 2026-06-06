@@ -6,11 +6,14 @@
 
 <p align="center"> 🍬 ⋮ NerdsCluster sys , not the most social </p>
 
-- - -
-<p align="center"> 
-[ATABOOK](https://vampcrier.atabook.org/)
-</p>
+- - -  
+<div align="center">
+ 
+  [ATABOOK](https://vampcrier.atabook.org/)    ⌣    [ARTFIGHT](https://artfight.net/~_SINISTERLY)
+ 
+  </div>
 
+- - -
 > These stamps are things we enjoy. 
 
 <details>
