@@ -14,12 +14,27 @@
   </div>
 
 - - -
-> These stamps are things we enjoy. 
+
+<details>
+
+<summary> SIN'S BASIC BOUNDARIES </summary>
+
+```> Please don't copy my skins, Inspo is fine, its a free world but just don't hard copy my skins.```   
+
+```> If you're always complaining about nothingburger topics & stuff thats harmless PLEAASE don't talk to me you're insufferable```
+
+```> No true DNI, Just don't be weird or a jackass - I block/hide freely```
+
+> 
+
+</details> 
 
 <details>
 
 <summary> SIN'S STAMP DUMP </summary>
 
+> These stamps are things we enjoy.
+> 
 <img width="100" height="55" alt="Image" src="https://github.com/user-attachments/assets/5d619f62-3a9d-4599-bf87-75965b2c15a3" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c672db4e-cb33-4c3b-96b2-a23fc25418dd" /> <img width="100" height="55" alt="Image" src="https://github.com/user-attachments/assets/2ae4b3ee-f0a1-46b1-9c85-70f8a14c6844" />
  <img width="100" height="56" alt="Image" src="https://github.com/user-attachments/assets/75c82aaa-9abc-44bc-87c6-2296c5529c41" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/52a5ceae-eaa3-434b-8476-5fce5eae4f27" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/371d44e2-659f-4bfe-8916-9b98d972d4e0" />
 
