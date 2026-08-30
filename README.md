@@ -1,5 +1,5 @@
  <p align="center">
-<img width="480" height="270" alt="Image" src="https://github.com/user-attachments/assets/41c90679-4e3e-4026-a0cf-6ced4567926e" />
+<img width="640" height="360" alt="Image" src="https://github.com/user-attachments/assets/05380d33-5d97-4e50-9a27-1791e4ecf6ef" />
 <p align="center">  Snare / Sin / Sinister
  ︵ masc trms only </p>
 
